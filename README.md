@@ -35,7 +35,7 @@ Here are some of my notable projects:
 
 I'm eager to collaborate and contribute to innovative projects. You can reach me via:
 
-- Email: your.lamphrangmilamin46169@gmail.com
+- Email: lamphrangmilamin46169@gmail.com
 - LinkedIn: [Lamphrangmi-Lamin](https://www.linkedin.com/in/lamphrangmi-lamin-874573175/)
 - GitHub: [Lamphrangmi-Lamin](https://github.com/Lamphrangmi-Lamin)
 
